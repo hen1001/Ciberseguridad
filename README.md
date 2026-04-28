@@ -1,5 +1,3 @@
 # Ciberseguridad
 Actividad
-//canva.link/cglvty460a3n1ym
-
-
+https://canva.link/cglvty460a3n1ym
